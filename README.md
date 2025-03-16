@@ -35,5 +35,7 @@ I sleep so that I can see you and I hate to wait so long
 And we can run away to the walls inside your house
 I can be the cat, baby, you can be the mouse
 And we can laugh off things that we know nothing about
-We can go forever until you wanna sit it out
+We can go forever until you wanna sit it out.
+
+geez
 
