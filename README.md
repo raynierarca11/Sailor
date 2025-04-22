@@ -1,6 +1,6 @@
 # Sailor
 ♫ 
-I saw her in the rightest way <br>  ee
+I saw her in the rightest way <br>  eee
 🎵🎶
 Looking like Anne Hathaway <br>
 Laughing while she hit her pen <br>
