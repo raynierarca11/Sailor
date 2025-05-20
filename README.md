@@ -12,8 +12,8 @@ dsds ennkdss
 .
 helloy
 hellaojsjeehdffs
-edsd.
-<!-- And when you get a taste, can you tell me what'dds my flavor?
+edsd..
+ And when you get a taste, can you tell me what'dds my flavor?
 I don't believe in God, but I believe that you're my savior.
 My mom says that she's worri ed, but I'm covered in this favor
 And when we're getting. dirty, I forget all that is wrong
@@ -37,6 +37,6 @@ And we can run away to the walls inside your house
 I can be the cat, baby, you can be the mouse
 And we can laugh off things that we know nothing about
 We can go forever until you wanna sit it out.
-
+<!--
 geeznsns
 
