@@ -21,7 +21,7 @@ I sleep so I can see you 'cause I hate to wait so long
 I sleep so I can see you and I hate to wait so long
 She took my fingers to her mouth
 The kind of thing that makes you proud
-That nothing else had ever
+That nothing else had ever.
 Worked out, worked out
 And lately, I've tried other things
 But nothing can capture the sting
